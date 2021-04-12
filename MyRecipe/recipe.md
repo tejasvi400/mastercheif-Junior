@@ -1,0 +1,1 @@
+Firstly take a fresh pizza base and put a lot amount of cheese on it.Add your favourite toppings on the base like olives, veggies, pizza sauce, etc.Add more cheese on the top, and microwave it for around 20 min. Your pizza is ready to eat now.
